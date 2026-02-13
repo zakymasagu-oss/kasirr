@@ -1,0 +1,2 @@
+# kasirr
+untuk memudahkan penjualan 
